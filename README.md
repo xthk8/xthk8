@@ -1,6 +1,9 @@
                         
                                                           
 ### ✔️ **FOR THE BETTER**     
+
+![Uploading 분석하는_흰둥이_lowres.gif…]()
+
        
 <br>
 
