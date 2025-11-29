@@ -2,7 +2,7 @@
                                                           
 ### ✔️ **FOR THE BETTER**     
 
-![분석하는_흰둥이_lowres](https://github.com/user-attachments/assets/98dc4e70-b15e-45e5-9363-38fddfc07e0e)
+![분석하는_흰둥이_lowres](https://github.com/user-attachments/assets/455ffa17-64f9-407b-93bd-22e30994668a)
 
 
        
